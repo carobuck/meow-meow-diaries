@@ -11,3 +11,8 @@ Mick's gone for a week and left me in charge of Meow Meow. Here's what happened.
 * One cute photo (Meow got into the boxes on the coffee table)
 * Moderate amount of head/neck pats (I discover that Meow's neck is her softest fur)
 * Meow Meow is the only living creature I spoke to IRL today. Everyone else (family, coworkers and networking event) was virtual
+* One late night staring contest (can't tell if she's love blinking or winking)
+* Toys played with: cap thing from coat rack, toilet paper tube, toilet paper wrapper
+* Moderate meow whining looking for cuddles/Mick at night
+* Meows "helps" take care of the plants. Temporarily gets stuck on windowsill. Pines for her long lost love (Mick)
+* One treat given for bedtime
