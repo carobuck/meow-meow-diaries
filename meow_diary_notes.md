@@ -16,3 +16,15 @@ Mick's gone for a week and left me in charge of Meow Meow. Here's what happened.
 * Moderate meow whining looking for cuddles/Mick at night
 * Meows "helps" take care of the plants. Temporarily gets stuck on windowsill. Pines for her long lost love (Mick)
 * One treat given for bedtime
+
+#### Day 2: 3/15/22
+* Caro talks with 1 person, Daniel G., IRL to sell a rolling cart
+* Toys played with: paper measuring tape, plastic wrapper (see below)
+* Limited interaction during work day
+* Considered picking meows up for the first time
+* Halfheartedly played with plastic wrapper (by halfhearted, I tried and Meows ignored me for the most part)
+* Actually picked Meows up for the first time (felt weird; a vulnerable position)
+* Picked meows up a second time, tried to do the butt thing Mick does. Didn't quite nail it. Escaped unscathed though, so that's a win.
+* One shin claw attempt when I wouldn't let her in the laundry area
+* Side note: received three months' worth of love (from an animal) from Duckie in one sitting. Great convo with a human IRL too (Timmy)
+* Meow's mood this evening: Needy/vocal/trying to break through the baby gate into my room
