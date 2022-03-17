@@ -28,3 +28,13 @@ Mick's gone for a week and left me in charge of Meow Meow. Here's what happened.
 * One shin claw attempt when I wouldn't let her in the laundry area
 * Side note: received three months' worth of love (from an animal) from Duckie in one sitting. Great convo with a human IRL too (Timmy)
 * Meow's mood this evening: Needy/vocal/trying to break through the baby gate into my room
+* Creatures I spoke to IRL (besides Meow and myself): 4 (Janet and Michael at boxing, plus two above)
+
+#### Day 3: 3/16/22
+* A beautiful rendition of a good morning song (consisting solely of "good morning" and "meow")
+* A treat scavenger hunt (whereby I shake the treat container and throw three kibbles in opposite directions)
+* Toys played with: tin foil balls (she found these from somewhere on her own); plastic lid (no idea where she got this, but it bounces in a fun way); plastic bag
+* Humans talked with IRL: Lauren (sold some furniture); Jake (sold a mirror); Janet, Satchel, Mac at boxing
+* Lots of phone calls (but those are "virtual")
+* Meows had a chill day today. Lots of sleep and she learned to entertain herself with some toys (trash).
+* Mocked by Jerred and Codi for my Meow Meow diaries.
