@@ -31,10 +31,28 @@ Mick's gone for a week and left me in charge of Meow Meow. Here's what happened.
 * Creatures I spoke to IRL (besides Meow and myself): 4 (Janet and Michael at boxing, plus two above)
 
 #### Day 3: 3/16/22
-* A beautiful rendition of a good morning song (consisting solely of "good morning" and "meow")
+* A beautiful rendition of a good morning song (consisting solely of "good morning" and "meow". I'll leave it as an exercise for the reader to guess who was who.)
 * A treat scavenger hunt (whereby I shake the treat container and throw three kibbles in opposite directions)
-* Toys played with: tin foil balls (she found these from somewhere on her own); plastic lid (no idea where she got this, but it bounces in a fun way); plastic bag
+* Toys played with: tin foil balls (she found these from somewhere on her own); plastic lid (no idea where she got this, but it bounces in a fun way); plastic bag; we briefly toyed with a receipt, too.
 * Humans talked with IRL: Lauren (sold some furniture); Jake (sold a mirror); Janet, Satchel, Mac at boxing
 * Lots of phone calls (but those are "virtual")
 * Meows had a chill day today. Lots of sleep and she learned to entertain herself with some toys (trash).
+* Picked her up (bare arms, too! I was feeling brave!). Held for 3.2 seconds
 * Mocked by Jerred and Codi for my Meow Meow diaries.
+
+#### Day 4: 3/17/22
+* Meows seems less patient with my Dance Church antics this AM (she's was a bit edgier with more claw swipes)
+* Toys: String
+* We played a fun game called "how long will Meows walk around with the strings on her back"
+* Other cat cuddles: Zz and ficus. No attacks. So much easier to pet a cat that wants to be petted.
+* Not much Meows interaction at all today
+* Most friends IRL! Jerred, Erica, Katie, Naomi
+* Other IRL: Mac & Michael (boxing)
+
+#### Day 5: 3/18/22
+* AM: Meowing A LOT for attention. Try to pet, walks away (per usual) or tried to bite me. Ugh. "YOU'RE HARD TO PET!!"
+* Busy day for me, didn't have much time to pet/play, so Meows entertained herself a lot today
+* Humans IRL: Dr, X-Ray tech, nurse (Zoom Care); Tanner (boxing)
+* Lots of assorted phone calls for health, home, family, work
+* Today was also a lot because I lost my CC. And confirmed I have a broken tailbone. Whoop whoop.
+* High note interaction of the day: Meows (willingly) got it my lap and snuggled (for several minutes). And then shed a toooon of hair all over my sweats. XD
