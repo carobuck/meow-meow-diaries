@@ -56,3 +56,25 @@ Mick's gone for a week and left me in charge of Meow Meow. Here's what happened.
 * Lots of assorted phone calls for health, home, family, work
 * Today was also a lot because I lost my CC. And confirmed I have a broken tailbone. Whoop whoop.
 * High note interaction of the day: Meows (willingly) got it my lap and snuggled (for several minutes). And then shed a toooon of hair all over my sweats. XD
+* Toys played with: plastic bag; toilet paper tube
+
+#### Day 6: 3/19/22
+* Toys played with: tin foil balls
+* Mick came home today. Clearly I took poor notes as I have nothing else to report. That or I was out of the house most of the day.
+
+## Trip two: Mick goes to AZ
+#### Day 0: 4/4/22
+* Bonus: I ripped my pants and missed having a human to tell IRL. Emma got the call instead.
+#### Day 1: 4/5/22
+* Toys played with: tin foil balls
+* some meows at night, lots of leg rubs
+* humans: Tanner + Janet (boxing)
+
+#### Day 2: 4/6/22
+* Lots of big noises (vacuuming upstairs and plumber) so Meows spent lots of time hiding under the bed today
+* Gave her some treats; she eventually came back out
+
+#### Day 3: 4/7/22
+* The usual morning leg rubs while going to the bathroom
+* 3 treats + good pets after my AM walk
+    * Despite this, LOTS of meows/wanting attention. We didn't do the classic Good Morning Meows song, so maybe that's what's she's missing. (More likely, she's probably pining for Mick, but a girl can hope about her angelic singing)
