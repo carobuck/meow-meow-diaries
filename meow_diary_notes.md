@@ -66,13 +66,15 @@ Mick's gone for a week and left me in charge of Meow Meow. Here's what happened.
 #### Day 0: 4/4/22
 * Bonus: I ripped my pants and missed having a human to tell IRL. Emma got the call instead.
 #### Day 1: 4/5/22
-* Toys played with: tin foil balls
+* Toys played with: tin foil balls; sticky tape from Azazie (Lol I stuck it to her)
 * some meows at night, lots of leg rubs
-* humans: Tanner + Janet (boxing)
+* Humans I talked to: Tanner + Janet (boxing)
 
 #### Day 2: 4/6/22
 * Lots of big noises (vacuuming upstairs and plumber) so Meows spent lots of time hiding under the bed today
 * Gave her some treats; she eventually came back out
+* Toys: Paper balls because I couldn't find foil balls
+* Meows was serenaded twice today: the fan-favorite Good Morning Meows song, and the new hit single "Meow" (encompasses a wide range of styles, from pop to nursery rhyme to funeral dirge. I am accepting calls from recording labels now)
 
 #### Day 3: 4/7/22
 * The usual morning leg rubs while going to the bathroom
